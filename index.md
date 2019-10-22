@@ -1,5 +1,5 @@
 
-:exclamation:四虎影库 地址发布:exclamation:
+:fire::fire:熊猫App IOS版失效安装说明:exclamation:
 ==
 :star: :point_right: 【地址一】 ：https://www.886ku.com
 ------
